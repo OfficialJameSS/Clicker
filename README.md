@@ -2,7 +2,7 @@
 
 Ohh...
 First app?
-Shit, sexy?
+Shit? sexy?
 Easy, hard game?
 
 You vote!
